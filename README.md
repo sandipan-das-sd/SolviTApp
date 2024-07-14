@@ -1,2 +1,1 @@
-# SolviTApp
-check
+Ok dekhchi Sandipan
